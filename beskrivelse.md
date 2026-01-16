@@ -1,0 +1,2 @@
+Star Trek is an American science fiction media franchise created by Gene Roddenberry, which began with the series of the same name and became a worldwide pop culture phenomenon. 
+Since its creation, the franchise has expanded into various films, television series, video games, novels, and comic books, and it has become one of the most recognizable and highest-grossing media franchises of all time.
